@@ -1,2 +1,2 @@
 # automatic-succotash
-a
+'allo  
